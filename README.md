@@ -14,7 +14,7 @@
 
 ## 📌 About Me
 - I'm a very passionate student which always wants to learn.
-- I'm looking further to work and collaborate with anything as possible.
+- I'm looking further to work and collaborate with anything as possible; Even for free.
 - And I'm looking help for developing skills that can lead me further
 
 
